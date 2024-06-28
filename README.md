@@ -1,1 +1,1 @@
-# landing page of hisney + hotstar
+# landing page of Disney + hotstar
